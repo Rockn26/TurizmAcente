@@ -1,1 +1,1 @@
-# TurizmAcente
+[Ekran Kaydı 2023-11-11 21.05.00.mov](..%2F..%2F..%2F..%2FDesktop%2FEkran%20Kayd%C4%B1%202023-11-11%2021.05.00.mov)
